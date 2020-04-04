@@ -1,0 +1,1 @@
+# knsru.123-softbank.ne.jp
